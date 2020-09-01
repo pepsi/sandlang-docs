@@ -1,1 +1,0 @@
-# sand-docs
